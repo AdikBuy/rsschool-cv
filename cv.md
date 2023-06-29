@@ -1,1 +1,1 @@
-Adilet
+Adilet Buitukov
