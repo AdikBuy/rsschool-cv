@@ -1,1 +1,1 @@
-https://AdikBuy.github.io/rsschool-cv/cv
+https://AdikBuy.github.io/rsschool-cv/
